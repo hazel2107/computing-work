@@ -14,4 +14,4 @@ things i like:
 - sleeping
 - souupp
 - bangchan
-- todoroki ( hes hot )
+- todoroki
