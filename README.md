@@ -10,3 +10,7 @@ Education:
 - Kong Hwa School
 - Dunman High School
 
+things i like:
+- sleeping
+- souupp
+- bangchan
